@@ -1,1 +1,0 @@
-# Sustainable_Living_Planner
